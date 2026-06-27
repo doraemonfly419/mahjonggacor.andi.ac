@@ -1,0 +1,1 @@
+# mahjonggacor.andi.ac
